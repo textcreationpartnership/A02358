@@ -35,1447 +35,157 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Popish glorying in antiquity turned to their shame Whereby is shewed, how they wrong, villifie, and 
+
+1. TO THE RIGHT WORSHIPFVLL, And truely honorable, SIR ALEXANDER GORDON BARONET, of CLUNIE KNIGHT, &c.
+
+1. To the Reader.
+
+1. The Contents.
+
+1. TO THE AVTHOR.
+
+1. TO THE PATRON.
+
+1. DE AUTHORIS INDUSTRIA.
+
+1. TO THE AUTHOR.
+
 #####Body#####
 
-1. 1. OF SCRIPTURE.
+1. CHAPTER I. Of Antiquitie, and the severall sorts there-of.
 
-    _ A
+    _ 1. OF SCRIPTURE.
 
-    _ B.
+    _ 2. Of Councels and Fathers.
 
-    _ C.
+    _ 3. Of Historie.
 
-    _ D
+1. CHAP. II. What the Romanists say of all the Fathers, and Ancients in generall, both in exposition of Scripture, and Dogmaticall pointes of Fayth.
 
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 2. Of Councels and Fathers.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 3. Of Historie.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
+1. CHAP. III. Hovv they reject Them all, when They make not for them, altho consenting in one: And first, In doctrinall points of Fayth.
 FIrst, in the freeing of the Virgine Maries owne conception,Bell. de amiss. gratiae l. 4. c. 15 §. a
-    _ A
+    _ The second Point, concerning Worship of Images, wherin Poperie opposeth it selfe palpablie against all Antiquitie.
 
-    _ B.
+    _ The third Poynt, where-in avowedlie Poperie rejecteth Antiquitie: to wit, in placing their consecration of the Eucharist, in the words, Hoc est corpus meum.
 
-    _ C.
+    _ The fourth Poynt, concerning Limbus Patrum: and for probation there-of whether it was Samuel truelie, who appeared 1 Kings 28, us. Bellarmine holdeth, agaynst the most cōmon consent of venerable Antiquitie.
 
-    _ D
+    _ Secondly, How the Romanists reject the Fathers, consenting in one, in exposition of Scripture, as formerlie hath bene showne they doe in doctrinall points of Fayth.
 
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. The second Point, concerning Worship of Images, wherin Poperie opposeth it selfe palpablie against all Antiquitie.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. The third Poynt, where-in avowedlie Poperie rejecteth Antiquitie: to wit, in placing their consecration of the Eucharist, in the words, Hoc est corpus meum.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. The fourth Poynt, concerning Limbus Patrum: and for probation there-of whether it was Samuel truelie, who appeared 1 Kings 28, us. Bellarmine holdeth, agaynst the most cōmon consent of venerable Antiquitie.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. Secondly, How the Romanists reject the Fathers, consenting in one, in exposition of Scripture, as formerlie hath bene showne they doe in doctrinall points of Fayth.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
+1. CHAP. IIII. How contumeliouslie they deale with the Fathers, and especiallie, first, with those of the Greeke Church, conjunctlie, and in Councell.
 IT is reported of Pelagius, that even when he most disagreed from the Orthodox Fathers of the Primit
-    _ A
+    _ Secondlie, how they deale with the Greeke Fathers, severallie and a-part.
 
-    _ B.
+1. CHAP. V. How the Romanists deale with the Latine Fathers, conjunctly and apart.
 
-    _ C.
+1. CHAP. VI. How the Romanists haue shamefullie corrupted the Fathers, both by adding to them, payring from them, and altering their wordes.
 
-    _ D
+    _ First, Examples of Popish adding to the Fathers.
 
-    _ E
+    _ Secondlie, examples of Popish purging from the Fathers.
 
-    _ F.
+    _ Thirdlie, Examples of Popish Altering the words of the Fathers.
 
-    _ G.
+1. CHAP. VII. How manie vnder the Names of Fathers, Bellarmine acknowledgeth to be meerly counterfeyt, and this thorow the first fiue Ages, or Centuries of the Church.
 
-    _ H.
+1. AN APPENDIX, For discerning of Counterfeyts.
+CHAP. VIII. 1. How the Romanists adduce the Testimonies of Fathers, agaynst vs as true; whom not wit
+    _ CHAP. VIII. 1. How the Romanists adduce the Testimonies of Fathers, agaynst vs as true; whom not withstanding them selues else▪ where doe pronounce Cou•t••f•yt.
 
-    _ I
+      * A
 
-    _ L
+      * B.
 
-    _ M
+      * C.
 
-    _ O
+      * D
 
-    _ P
+      * E
 
-    _ V
+      * F.
 
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
+      * G.
 
-    _ 2. How they answere, by tempering the words of the Fathers.
+      * H.
 
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
+      * I
 
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
+      * L
 
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
+      * M
 
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
+      * O
 
-    _ 1. By adding to them.
+      * P
 
-    _ 2. How they purge and pare from the Councels.
+      * V
 
-    _ 3. How they alter the Wordes and Canons of the Councels.
+    _ The second part of the VIII. CHAPTER. How the Romanists answere vs, when wee adduce the Testimonies of those same Fathers agaynst them, which they obtrude vnto vs as true.
 
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
+    _ 2. How the Romanists, without anie farther Warrand, alleadge onlie of some Fathers, That perhaps they are counterfeyt.
 
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
+1. CHAP. IX. How the Romanists alleadge the Fathers for them, in one place and poynt of Doctrine; and at their pleasure reject them in another, when they can neyther alleadge them to bee corrupt, nor counterfeyt.
 
-    _ 1. By giving them the Lie, when they make agaynst them.
+    _ AN APPENDIX. Of the Romanistes, their other shamelesse and fraudulent forme of Answeres, to cleare Testimonies of Fathers, objected against them.
 
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
+      * 1. By giving a Sence, cleare contrarie to their wordes.
 
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
+      * 2. How they answere, by tempering the words of the Fathers.
 
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
+      * 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
 
-1. Secondlie, how they deale with the Greeke Fathers, severallie and a-part.
+      * 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
 
-    _ A
+      * 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
 
-    _ B.
+      * 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
 
-    _ C.
+1. CHAP. X. Some notable Frauds, vsed by the Romanists, in Citations of the Fathers, where-of the Reader would carefullie beware.
 
-    _ D
+    _ 1. By citing of Heretickes wordes for them as if they were the wordes of the Orthodox Fathers.
 
-    _ E
+    _ 2. How they cite the Fathers, quyte contrarie to their mynde.
 
-    _ F.
+    _ 3. How they vrge vs, with Testimonies of Fathers, which are the brood of those Errours, which them-selues disclayme.
 
-    _ G.
+    _ 4. How they cite words of Fathers, which no-wyse are in their Writs.
 
-    _ H.
+1. CHAP. XI. How the Romanists not onelie equall, but preferre the judgement of their late Divines, to the Fathers, (not-with-standing of the Reverence they pretend to Antiquitie) and this, both in Dogmaticall poynts, and exposition of Scripture.
 
-    _ I
+1. CHAP. XII. By what partiall & absurd Rule the Romanists do admit, or reject, the Testimonies of Fathers.
 
-    _ L
+1. THE SECOND BOOKE, OF▪ COUNSELS.
 
-    _ M
+    _ CHAP. XIII. As the Romanists deale with the Fathers, so how they manie vvayes deale injuriouslie vvith ancient Councels.
 
-    _ O
+      * 1. By adding to them.
 
-    _ P
+      * 2. How they purge and pare from the Councels.
 
-    _ V
+      * 3. How they alter the Wordes and Canons of the Councels.
 
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
+      * Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
 
-    _ 2. How they answere, by tempering the words of the Fathers.
+      * Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
 
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
+    _ CHAP. XIIII. Popish avowed Rejection, in their late Councels, of the most primitiue and principall Antiquitie.
 
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
+1. THE THIRD BOOKE. OF HISTORIE.
 
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
+    _ CHAP. XV. How they deale with the auncient Histriographers, and their owne Records.
 
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
+      * 1. By giving them the Lie, when they make agaynst them.
 
-    _ 1. By adding to them.
+      * 2. How they alleadge them to be corrupt, when they make agaynst them.
 
-    _ 2. How they purge and pare from the Councels.
+      * 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
 
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. First, Examples of Popish adding to the Fathers.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. Secondlie, examples of Popish purging from the Fathers.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. Thirdlie, Examples of Popish Altering the words of the Fathers.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. CHAP. VIII. 1. How the Romanists adduce the Testimonies of Fathers, agaynst vs as true; whom not withstanding them selues else▪ where doe pronounce Cou•t••f•yt.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. The second part of the VIII. CHAPTER. How the Romanists answere vs, when wee adduce the Testimonies of those same Fathers agaynst them, which they obtrude vnto vs as true.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 2. How the Romanists, without anie farther Warrand, alleadge onlie of some Fathers, That perhaps they are counterfeyt.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. AN APPENDIX. Of the Romanistes, their other shamelesse and fraudulent forme of Answeres, to cleare Testimonies of Fathers, objected against them.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 1. By citing of Heretickes wordes for them as if they were the wordes of the Orthodox Fathers.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 2. How they cite the Fathers, quyte contrarie to their mynde.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 3. How they vrge vs, with Testimonies of Fathers, which are the brood of those Errours, which them-selues disclayme.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. 4. How they cite words of Fathers, which no-wyse are in their Writs.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. CHAP. XIII. As the Romanists deale with the Fathers, so how they manie vvayes deale injuriouslie vvith ancient Councels.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. CHAP. XIIII. Popish avowed Rejection, in their late Councels, of the most primitiue and principall Antiquitie.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
-
-1. CHAP. XV. How they deale with the auncient Histriographers, and their owne Records.
-
-    _ A
-
-    _ B.
-
-    _ C.
-
-    _ D
-
-    _ E
-
-    _ F.
-
-    _ G.
-
-    _ H.
-
-    _ I
-
-    _ L
-
-    _ M
-
-    _ O
-
-    _ P
-
-    _ V
-
-    _ 1. By giving a Sence, cleare contrarie to their wordes.
-
-    _ 2. How they answere, by tempering the words of the Fathers.
-
-    _ 3. How they fraudfullie, in their Aunsweres to the Fathers, disjoynt thinges, not to bee disjoyned; and conjoyne thinges, that are not conjoyned.
-
-    _ 4. How they answere the Fathers, alleadging their speaches to be hyperbolicke, when they are no-wise so.
-
-    _ 5. How they vrge such Answeres to Antiquitie agaynst vs, which they will not (as they ought) justlie accept of vs.
-
-    _ 6. How they answere vs, to some Fathers; impudentlie denying the cleare words which are in then Writs.
-
-    _ 1. By adding to them.
-
-    _ 2. How they purge and pare from the Councels.
-
-    _ 3. How they alter the Wordes and Canons of the Councels.
-
-    _ Secondlie, How they accuse the Councels, when they make against them, eyof Fraude, and Ignorance, in determination; or else, of after-falsification.
-
-    _ Thirdlie, How they admit Councels, onlie where-in they make for them; and reject them disdaynfullie, as no Councels, where-in they make agaynst them.
-
-    _ 1. By giving them the Lie, when they make agaynst them.
-
-    _ 2. How they alleadge them to be corrupt, when they make agaynst them.
-
-    _ 3. How they admit them as true, onelie when they make for them; but otherwyse roughlie reject them.
-
-    _ 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
+      * 4. How they haue so forged, and corrupted Recordes that are extant, and taken others al-together out of the way, that in things concerning the Trueth, which maketh agaynst them, they haue left verie little to bee seene, and feysted in, manie contrarie Falsehoods.
 
 #####Back#####
-Popish glorying in antiquity turned to their shame Whereby is shewed, how they wrong, villifie, and 
+
+1. ERRATA.
+
 **Types of content**
 
   * There are 53 **verse** lines!
